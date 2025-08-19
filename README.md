@@ -1,1 +1,0 @@
-# Meme-o-Tory
